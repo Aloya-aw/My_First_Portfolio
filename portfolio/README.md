@@ -1,0 +1,1 @@
+This portfolio is simply for educational purposes. My samples are legit though.
